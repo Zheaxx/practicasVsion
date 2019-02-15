@@ -1,1 +1,1 @@
-Buenos días currantes de Vsion Studio
+Buenos días tunantes de Vsion Studio
